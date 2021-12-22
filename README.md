@@ -17,7 +17,7 @@
    * Cracking Jee Mains
 
 ### Education Qualification :
-   - B.sc :- IIT Madras 
+   - B.sc :- IIT Madras [2021-2024]
    - B.tech :- NIT Agartala [2020 - 2024]
    - 12th :- Golden Bells Public School (C.B.S.E)
    - 10th :- T.M.V.M School (C.B.S.E)
