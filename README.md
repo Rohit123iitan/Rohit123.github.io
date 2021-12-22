@@ -1,5 +1,5 @@
 # Rohit kumar
-## Student , Dedicated Lerner , Front End Web-devloper
+## Student , Dedicated Learner , Front End Web-devloper
 ### Skill :
    * Python 
    * C
