@@ -10,7 +10,7 @@
 ### Soft skill:
    * Leadership Quality
    * Frequent speaker in English and Hindi
-   * Active participation in social clubs.
+   * Active participation in social clubs. Like:-[Astronomy fest](https://drive.google.com/file/d/1HWhwCfOF5tqqI9mQDH56PCFfFcF9U-iW/view?usp=sharing)
 
 ### Achivements :
    * Cracking Jee Advance
