@@ -1,11 +1,12 @@
 # Rohit kumar
-## Student , Dedicated Learner , Front End Web-devloper
+## Student , Dedicated Learner , Web-devloper
 ### Skill :
    * Python 
-   * C
+   * Java
    * C++
    * Html
    * Css
+   * Flask
 
 ### Soft skill:
    * Leadership Quality
